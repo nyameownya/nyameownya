@@ -1,4 +1,4 @@
 ### Hi there 👋
 
 
-**nyameownya.md** is STUPID FILE NOONE WILL READ THIS ANYWAY SO FUCK THIS.
+**nyameownya.md** is a lovely page done by dota player. stupid right?
